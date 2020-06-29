@@ -15,3 +15,5 @@ Ginnys Zauberstab ist matt-schwarz bemalt und hat eine glatte Oberfläche. Der G
 Wie Ginny einmal sagte:
 
 > Ron gave a tiny jerk of the head that Harry understood to mean, Well - if you must.
+
+<img src="https://i4.sndcdn.com/avatars-qyBiym66wNUMAZHz-ocWQAA-t500x500.jpg"/>
