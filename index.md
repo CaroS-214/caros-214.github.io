@@ -11,3 +11,7 @@ Ginnys Zauberstab ist matt-schwarz bemalt und hat eine glatte Oberfläche. Der G
 * beherrscht einen tollen Flederwichtzauber
 * ist die einzige Tochter der Familie
 * heiratet Harry Potter
+
+Wie Ginny einmal sagte:
+
+> Ron gave a tiny jerk of the head that Harry understood to mean, Well - if you must.
